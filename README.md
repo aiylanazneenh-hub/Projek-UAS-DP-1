@@ -9,6 +9,6 @@ Anggota Kelompok :
 
 2) 251401070 - Aiyla Nazneen Ramadhan 
 
-Link Gdrive : https://drive.google.com/file/d/14KEVWFCuQt8L-pDkAYG2NlbhQUYR6DE0/view?usp=drivesdk
+Link Gdrive : https://docs.google.com/document/d/1AQzIRYFGc4tu85SA1QWjObuaKMChiWKA/edit?usp=sharing&ouid=108504860403786849412&rtpof=true&sd=true
 
 Link Youtube : https://youtu.be/_3Stfr2at6U
